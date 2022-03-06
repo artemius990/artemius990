@@ -5,9 +5,8 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/artemius990](https://github.com/artemius990)
 
-- 📫 How to reach me **artbreenche@gmail.com**
+- 📫 Connect with me: **artbreenche@gmail.com**
 
-<h3 align="left">Connect with me:**artbreenche@gmail.com**</h3>
 <p align="left">
 </p>
 
